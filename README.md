@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning node.js
 - 💞️ I’m looking to collaborate on my lms project
-- 📫 How to reach me : just knock me on whats up: +880 1889 827127
+- 📫 How to reach me : just knock me on whatsapp: +880 1889 827127
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ami jibone konodin kono project successfully end korte pari nai.
 
